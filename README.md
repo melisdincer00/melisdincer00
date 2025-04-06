@@ -1,4 +1,4 @@
-![MasterHead](https://www.freepik.com/free-photos-vectors/programmer-girl/4#uuid=2838e087-6267-4308-9d35-612cbfb36cac)
+![MasterHead](https://i.pinimg.com/736x/52/d5/58/52d5584282dcbb55f528f67bda09710e.jpg)
 <h1 align="center">Hi 👋, I'm Melis Dinçer</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=melisdincer00&label=Profile%20views&color=0e75b6&style=flat" alt="melisdincer00" /> </p>
 

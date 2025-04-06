@@ -1,4 +1,4 @@
-![MasterHead](https://4kwallpapers.com/fantasy/lofi-girl-working-14820.html)
+![MasterHead](https://www.freepik.com/free-photos-vectors/programmer-girl/4#uuid=2838e087-6267-4308-9d35-612cbfb36cac)
 <h1 align="center">Hi 👋, I'm Melis Dinçer</h1>
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=melisdincer00&label=Profile%20views&color=0e75b6&style=flat" alt="melisdincer00" /> </p>
 
